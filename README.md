@@ -6,4 +6,4 @@
 - 👜 Já obtive experiências profissionais como Inspetora de Qualidade (2 anos), como Controladora de Produtos (1 ano), como Aprendiz Formare (1 ano), como Auxiliar de Serviços de alimentação (1 ano) e como Garçonete (3 meses).
 - 😊 Sou uma entusiasta na prática do aprendizado contínuo e tenho a expectativa de me tornar uma excelente profissional na área de TI.
 - 📫 Como entrar em contato comigo: juliana.gasparini123@gmail.com
-- ⚡ Curiosidade:	gosto muito de praticar musculação e corridas ao ar livre, assistir filmes e séries e ler livros de autoconhecimento e aventuras em meus momentos de descanso.
+- ⚡ Curiosidade:	comecei a trabalhar com 16 anos em uma fazenda, exercendo a colheita de limões. Desde então não parei mais de trabalhar, enquanto escolhia para qual área iria direcionar meu intelecto profissional.
